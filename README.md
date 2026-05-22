@@ -1,3 +1,1 @@
-
-
-<img width="720" height="720" alt="17653399693137236244990833215617" src="https://github.com/user-attachments/assets/b93d300a-75be-4669-a1ce-dca882d338f0" />
+lol people r Still following me even tho i dont link this github anymore.... follow eloquentcountenance guys
